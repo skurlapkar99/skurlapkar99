@@ -3,7 +3,7 @@
 
 **Data Analyst | SQL • Python • Power BI • Snowflake • Azure • AWS**
 
-📍 Texas, USA | 📧 shravanikurlapkar26@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/your-profile)
+📍 Texas, USA | 📧 shravanikurlapkar26@gmail.com | 🔗 [LinkedIn](https://www.linkedin.com/in/shravani-kurlapkar/)
 
 ---
 
